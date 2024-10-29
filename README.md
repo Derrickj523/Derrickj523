@@ -1,3 +1,3 @@
-## Hi theremy name is Derrick
+## Hi there my name is Derrick
 
 <
